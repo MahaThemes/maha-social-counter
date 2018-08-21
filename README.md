@@ -1,1 +1,1 @@
-© MahaThemes https://mahathemes.com
+© https://mahathemes.com
